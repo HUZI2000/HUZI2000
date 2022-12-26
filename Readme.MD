@@ -1,4 +1,4 @@
-- 👋 Hi, I’m HUZ
+- 👋 Hi, I’m HUZI
 - 👀 I’m interested in Testnet, Airdrops and web3 jobs.
 - 🌱 I’m currently learning Javascript.
 - 💞️ Interested in learning about NFT'S.
