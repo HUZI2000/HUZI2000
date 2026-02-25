@@ -1,5 +1,5 @@
 - 👋 Hi, I’m 0XHUZI
-- 👀 I’m interested in Testnet, Airdrops and web3 jobs.
+- 👀 I’m interested in Testnets and web3 jobs.
 - 🌱 I’m currently learning Javascript.
 - 💞️ Interested in learning about NFT'S.
 
